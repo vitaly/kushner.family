@@ -1,5 +1,3 @@
-# Welcome to Kushner Family
-
 ## Vitaly Kushner
 
 * [vitaly@kushner.family](mailto:vitaly@kushner.family)
