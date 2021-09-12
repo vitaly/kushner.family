@@ -6,7 +6,7 @@
 ## Shannon Kushner
 
 * [shannon@kushner.family](mailto:shannon@kushner.family)
-* [+49 162 3761596](tel:+491623761596)
+* [+49 176 37008204](tel:+4917637008204)
 
 ## Kim Kushner
 
