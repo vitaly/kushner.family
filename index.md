@@ -11,4 +11,4 @@
 ## Kim Kushner
 
 * [kim@kushner.family](mailto:kim@kushner.family)
-* [+49 176 37970199](tel:+4917637970199)
+* [+49 173 1747586](tel:+491731747586)
